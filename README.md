@@ -1,1 +1,2 @@
-What's your function?
+Conjunction junction,
+what's your function?
